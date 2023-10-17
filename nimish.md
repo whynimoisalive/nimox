@@ -26,4 +26,4 @@ Continuous Learner: Nimish is a lifelong learner, always seeking to expand their
 
 Caring Friend: Nimish is a great friend who genuinely cares about the well-being of those close to them. They provide support and lend a listening ear when needed.
 
-Problem Solver: Nimish has a knack for finding solutions to complex problems. Their analytical thinking and critical reasoning skills are commendable.
+Problem Solver: Nimish has a knack for finding solutions to complex problems. Their analytical thinking and critical reasoning skills are commendable..
