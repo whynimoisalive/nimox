@@ -1,6 +1,6 @@
 Intelligence: Nimish is highly intelligent and possesses a sharp mind. They have a knack for grasping complex concepts quickly.
 
-Creativity: Nimish is exceptionally creative. They often come up with innovative solutions and ideas, making them a valuable asset in problem-solving situations.
+C..reativity: Nimish is exceptionally creative. They often come up with innovative solutions and ideas, making them a valuable asset in problem-solving situations.
 
 Diligence: Nimish is hardworking and dedicated. They consistently put in the effort required to excel in their endeavors.
 
